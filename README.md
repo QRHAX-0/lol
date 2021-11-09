@@ -1,3 +1,3 @@
 # lol
 
-welcome man lol man
+welcome man man
